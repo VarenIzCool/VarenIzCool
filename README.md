@@ -4,6 +4,7 @@ Hi...
 
 <details>
 <summary>Click to read my rules..</summary>
+  
 - iwc, I'm quite sensitive and emotional
   
 - dncopy my ponies unless w/ permissions
